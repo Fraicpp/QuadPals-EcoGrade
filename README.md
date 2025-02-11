@@ -1,0 +1,1 @@
+# QuadPals-EcoGrade
